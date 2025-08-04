@@ -1,2 +1,1 @@
-# AmandeepkaurbtechCE
-Inductionprogram 
+#induction 
