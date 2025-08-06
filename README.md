@@ -16,4 +16,5 @@ After the welcome,students  visited their respective  department of orientation 
 ## 9:00 to 11:00 lecture  by Dr.priya darshni mam on" Universal Human values".
 ## 11:00 to 12:30  lecture  by Arvind dhingra( director-STEP & Incharge-TAC).
 ## 12:30 to 1:30 break
-## 1:30 to
+## 1:30 to 2:30 English  proficiency test
+## 2:30 to 3:30 Math proficiency  test
