@@ -12,3 +12,8 @@ and the importance of embracing opportunities during  college  life.
 Ex-cabinet minister and senior Trustee of Nankana sahib Education Trust,inspired students with his word on discipline,purpose, and the founding  vision of the  college.      
 After the welcome,students  visited their respective  department of orientation  meeting faculty and exploring labs and facilities.         
 🌸A day full of inspiration,traditions and new beginnings!
+# Day 2 ( 01/08/2025)
+## 9:00 to 11:00 lecture  by Dr.priya darshni mam on" Universal Human values".
+## 11:00 to 12:30  lecture  by Arvind dhingra( director-STEP & Incharge-TAC).
+## 12:30 to 1:30 break
+## 1:30 to
