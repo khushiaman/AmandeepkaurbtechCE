@@ -35,4 +35,14 @@ After the welcome,students  visited their respective  department of orientation 
 ### 9:30 to 10:00 lecture by Dr.parminder singh(Dean-student Welfare) 
 ### 10:00 to 11:00 Expert Lecture by Mr.Manpreet singh on "Fitness forEngineers"
 ### 11:00 to 12:30 Expert Lecture by Brigadier P.S Cheema Sir
-###
+### 12:30 to 1:30 break
+### 1:30 to 2:30 English  lecture by professor nisha
+### 2:30 to 3:30 P2P class
+# Day 7 (07/08/2025)
+### 9:30 to 10:30 Maths lecture by professor Sukhminder singh
+### 10:30 to 11:00 physics lecture  by professor Komalpreet kaur
+### 11:30  ID card formation 
+### 11:30 to 12:30 break
+### 12:30 to 1:30 lecture  by Dr.Lakhvir singh khana
+### 1:30 to 3:00 lecture by Dr.jasvir singh grewal
+#### information for the NSS.
