@@ -20,10 +20,19 @@ After the welcome,students  visited their respective  department of orientation 
 ## 2:30 to 3:30 Math proficiency  test
 # Day 3 (02/08/2025)
 ## Holiday
-# Day 4 (03/08/2025)
+# Day 4 (04/08/2025)
 ### 8:30 to 9:30 cosmic group(Auditorium)
 ### 9:30 to 10:30 lecture by Dr.Randhir singh on "conduct of examination"
 ### 10:30 to 12:30 lecture by Dr.priya darshni mam"Universal Human values "
 ### 12:30 to 1:30 break
 ### 1:30 to 2:30 physics lecture by Amarjot kaur
 ### 2:30 to 3:30  p2p lecture 
+# Day 5( 05/08/2025)
+### 1:30 to 2:30 lecture by mr.gautam marriage D4-ME"motor sports"
+### 2:30 to 3:30 lecture byDr.Amrit kamra(Incharge-Digital marketing club)
+### 3:00 to 4:00 Expert Lecture by Mrs.Shaffy Makker on "millets super Food"
+# Day 6 (06/08/2025)
+### 9:30 to 10:00 lecture by Dr.parminder singh(Dean-student Welfare) 
+### 10:00 to 11:00 Expert Lecture by Mr.Manpreet singh on "Fitness forEngineers"
+### 11:00 to 12:30 Expert Lecture by Brigadier P.S Cheema Sir
+###
